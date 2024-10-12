@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Erick Guizoni😁
+## Bem-vindo(a) ao perfil do Erick-Guizoni😁
 
  <div>
    <a href="https://github.com/Erick-Guizoni">
